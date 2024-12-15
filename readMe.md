@@ -1,0 +1,1 @@
+I really try my best for creating this softwares freely. Allam asking for is for you to follow me in all the social media platforms @ezzydoveyrn
